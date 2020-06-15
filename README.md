@@ -27,6 +27,8 @@ App stores First cross most important first aid videos.
 
 
 
+If you're interested in making this happen please contact me and I would be happy to work alongside you. 
+
 
 
 
